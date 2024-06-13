@@ -1,3 +1,5 @@
+©2024 By: ElkikoGAMER/Enigma Digital
+
 # Script Disruptivo de Automatización
 
 ## Descripción
